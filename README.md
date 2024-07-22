@@ -15,3 +15,7 @@ Paid apps charge for this, but now you can access these crucial insights at no c
 Knowing the exact time between orders allows you to time your retention efforts perfectly, boosting your marketing ROI! 
 
 🔒 No coding required - plug and play! 
+
+Created by - Abhishek Maity, Co-Founder Adbuffs
+Email - abhishek [ d  o t ] maity [a t] adbuffs dot com
+Linkedin - https://www.linkedin.com/in/abhishek-maity-adbuffs/
