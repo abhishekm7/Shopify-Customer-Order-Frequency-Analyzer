@@ -19,3 +19,5 @@ Knowing the exact time between orders allows you to time your retention efforts 
 Created by - Abhishek Maity, Co-Founder Adbuffs
 Email - abhishek [ d  o t ] maity [a t] adbuffs dot com
 Linkedin - https://www.linkedin.com/in/abhishek-maity-adbuffs/
+
+Join Top 1% Media Buyers and D2C Brand Owners (⚠️ For serious discussions only) >> https://chat.whatsapp.com/F7gtIsF5iMX9O8WUkexjPU
