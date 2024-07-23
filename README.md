@@ -20,4 +20,4 @@ Created by - Abhishek Maity, Co-Founder Adbuffs
 Email - abhishek [ d  o t ] maity [a t] adbuffs dot com
 Linkedin - https://www.linkedin.com/in/abhishek-maity-adbuffs/
 
-Join Top 1% Media Buyers and D2C Brand Owners (⚠️ For serious discussions only) >> https://chat.whatsapp.com/F7gtIsF5iMX9O8WUkexjPU
+Join Top 1% Media Buyers and D2C Brand Owners (⚠️ For serious discussions only) >> (https://docs.google.com/forms/u/2/d/e/1FAIpQLScFKYtGOLQRmqohgYsiK4lBOMfYulT5agUTl8BIrIuk7V6TAg/viewform?usp=send_form)
